@@ -1,2 +1,0 @@
-# T-m-o-vip-
-Có thêm tâm giữa màn hình để chơi game có trải nghiệm tuyệt vời hơn 👍
